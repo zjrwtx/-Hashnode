@@ -8,3 +8,5 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1692373055877/c4ae33e
 ---
 
 仰望星空 脚踏实地
+
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1692373268634/55bb306c-aa70-4cbe-b4e2-3e490a2cc3d6.png align="center")

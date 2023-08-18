@@ -1,10 +1,10 @@
 ---
-title: "Ai大模型+生物计算重新定义医药未来"
+title: "全景生态战略"
 datePublished: Wed Aug 09 2023 16:46:53 GMT+0000 (Coordinated Universal Time)
 cuid: cll3yqflm000109kxf4o2c1lq
-slug: ai
-cover: https://cdn.hashnode.com/res/hashnode/image/stock/unsplash/pwcKF7L4-no/upload/190a6704f36a6a9fd9be560b0cdef98f.jpeg
+slug: 5ywo5pmv55sf5ocb5oiy55wl
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1692373055877/c4ae33e9-e740-4d10-bef2-168db3b7a0f6.png
 
 ---
 
-AI大模型+生物计算重新定义医药未来
+仰望星空 脚踏实地

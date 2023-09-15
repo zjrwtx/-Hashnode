@@ -30,8 +30,4 @@ slug: 5qyi6lo5yqg5ywl5oir5lus
 
 请加王同学微信，然后发简历和申请岗位，再做进一步考察
 
-王同学微信:agi\_isallyouneed
-
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1694793489504/644c7437-d084-4a25-b5e3-1ca35f9d6457.jpeg align="center")
-
-:
+**王同学微信:agi\_isallyouneed**

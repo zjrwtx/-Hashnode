@@ -3,10 +3,8 @@ title: "全景生态战略"
 datePublished: Wed Aug 09 2023 16:46:53 GMT+0000 (Coordinated Universal Time)
 cuid: cll3yqflm000109kxf4o2c1lq
 slug: 5ywo5pmv55sf5ocb5oiy55wl
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1692373055877/c4ae33e9-e740-4d10-bef2-168db3b7a0f6.png
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1700480369476/54ac0f36-213c-48b1-af0f-1e8f4d10e42e.png
 
 ---
 
-仰望星空 脚踏实地
-
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1692373268634/55bb306c-aa70-4cbe-b4e2-3e490a2cc3d6.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1700480317300/8ff64ae1-bb70-4d6f-b104-8865c63e62b2.png align="center")

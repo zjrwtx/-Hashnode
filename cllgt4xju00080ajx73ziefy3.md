@@ -6,9 +6,11 @@ slug: 5qyi6lo5yqg5ywl5oir5lus
 
 ---
 
-# **17.ai愿景：打造史上最具隐私安全与最低成本的机器学习自训练系统 构建第一代自训练迭代模型系统**
+# **一起做第一代AI原生居民！**
 
 ***security and automatic iteration are all you need in AGI***
+
+![微信图片_20231211220617.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1702303644992/B7m6czuk1.jpg align="left")
 
 ### 暂时开放的岗位有以下几个：
 
